@@ -6,7 +6,7 @@
 - 👯 Estou procurando colaborar em Projetos Enriquecedores
 - 🤔 Estou procurando ajuda com novas ooportunidades no mercado de TI
 - 💬 Pergunte -me sobre como manter a sanidade mental em 2025
-- 📫 Como me alcançar: Clique nas minhas redes sociais, abaixo no meu perdil
+- 📫 Como me alcançar: Clique nas minhas redes sociais, abaixo no meu perfil
 - 😄 Pronomes: Ela/Dela
 - ⚡ Curiosidade: Eu não gosto de tomate mas gosto de vinagrete
 
