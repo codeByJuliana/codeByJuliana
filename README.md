@@ -4,7 +4,7 @@
 - 🔭 Atualmente estou trabalhando com Tráfego Pago e Marketing Digital
 - 🌱 Atualmente estou aprendendo Desenvolvimento Front-End
 - 👯 Estou procurando colaborar em Projetos Enriquecedores
-- 🤔 Estou procurando ajuda com novas ooportunidades no mercado de TI
+- 🤔 Estou procurando ajuda com novas oportunidades no mercado de TI
 - 💬 Pergunte -me sobre como manter a sanidade mental em 2025
 - 📫 Como me alcançar: Clique nas minhas redes sociais, abaixo no meu perfil
 - 😄 Pronomes: Ela/Dela
